@@ -1,4 +1,4 @@
-# Hi there, I'm Frank Chirare Charles 👋
+# Hi there, I'm Frank Charles 👋
 
 ## Welcome to my GitHub Profile! 👋  
 
